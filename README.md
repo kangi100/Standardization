@@ -1,1 +1,1 @@
-# Standardaization
+# Standardization
